@@ -4,4 +4,4 @@
 
 https://telegra.ph/Nauchno-issledovatelskaya-rabota-v-ramkah-VTSK----289-09-08 - краткое описание работы.
 
-полную работу можно посмотреть в файле - "ВТСК AI&ART.doc".
+полную работу можно посмотреть в файле - "ВТСК AI&ART.docx".
